@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Linh Thai
+- 🌱 I’m currently learning how to make a simple web
+- 💞️ I’m woking in Urban and regional planning porjects
+- 😄 Pronouns: I love beeeeeeer!
+- ⚡ Fun fact: I like having 5 practice beers before the 1st beer LOL!
